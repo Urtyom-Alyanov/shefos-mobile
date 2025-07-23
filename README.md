@@ -1,4 +1,4 @@
-# PENGVIN 320KG
+# PENGVIN 320KG В
 
 @linuxshef - учитель Адольф Г.
 
